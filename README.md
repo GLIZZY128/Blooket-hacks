@@ -1,1 +1,1 @@
-Make git hub hacks for blooket (give me ideas on what to make codes for onlienusing html or javascript for the language) :)
+for you people who do not know wher to find codes (all blooket hacks v2) copy this code 
